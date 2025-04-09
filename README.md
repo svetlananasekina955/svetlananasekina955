@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![1674240516-balthazar-club-p-yeda](https://github.com/user-attachments/assets/8bc12c15-84b0-4a8c-9543-a64eed982402)
+![1674240516-balthazar-club-p-yeda1](https://github.com/user-attachments/assets/01d86884-e375-4f3b-8612-e0862ca9de26)
+
